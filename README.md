@@ -1,1 +1,1 @@
-# 🤖 EduMate.ai — Emotionally Intelligent Learning Buddy for New Generation
+# 🤖 EduMate.ai — Emotionally Intelligent Learning Buddy for New Generation Students
